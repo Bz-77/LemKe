@@ -1,3 +1,0 @@
-# LemKe
-# start of 
-# End 
